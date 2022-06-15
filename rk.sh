@@ -1,3 +1,2 @@
-hi rk
-where r u
+hi rkwhere r u
 
